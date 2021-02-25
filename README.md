@@ -7,7 +7,7 @@ Mi nombre es Damaris Villegas y es un gusto conocerte✨
 
 Algunas cosa sobre mi:
 
-- Actualmento estoy estudiando la carrera de Ing en Sistemsa Computacione.💻
+- Actualmento estoy estudiando la carrera de Ing en Sistemas Computacionales.💻
 
 -En la preparatoria estudie Electronic, asi que tengo un poco de conocimiento sobre esta.
 
