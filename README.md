@@ -11,5 +11,5 @@ Algunas cosa sobre mi:
 
 -En la preparatoria estudie Electronica, asi que tengo un conocimiento basico de esta.
 
--Me gusta escuhcar musica y leer.📖📚
+-Me gusta escuhar musica y leer.📚📖
 
