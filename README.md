@@ -1,16 +1,15 @@
-### Hi there 👋
+## ¡Bienvenido a mi Perfil!😊
 
-<!--
-**Damaris2403/Damaris2403** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Es un gusto que vistes mi perfil😁            
 
-Here are some ideas to get you started:
+Mi nombre es Damaris Villegas y es un gusto conocerte✨
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+Algunas cosa sobre mi:
+
+- Actualmento estoy estudiando la carrera de Ing en Sistemsa Computacione.💻
+
+-En la preparatoria estudie Electronic, asi que tengo un poco de conocimiento sobre esta.
+
+-Me gusta escuhcar musica y leer.📖📚
+
