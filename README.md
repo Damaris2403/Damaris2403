@@ -9,7 +9,7 @@ Algunas cosa sobre mi:
 
 - Actualmento estoy estudiando la carrera de Ing en Sistemas Computacionales.💻
 
--En la preparatoria estudie Electronic, asi que tengo un poco de conocimiento sobre esta.
+-En la preparatoria estudie Electronica, asi que tengo un conocimiento basico de esta.
 
 -Me gusta escuhcar musica y leer.📖📚
 
